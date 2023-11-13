@@ -1,4 +1,0 @@
-# Fire AI Notes
-
-
-
